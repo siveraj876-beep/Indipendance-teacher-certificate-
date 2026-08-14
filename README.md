@@ -1,1 +1,0 @@
-# Indipendance-teacher-certificate-
